@@ -3,7 +3,7 @@
 # 💀 MØNSTR-M1ND APOCALYPSE CANNON v9.0 💀
 ## 🌋 ULTIMATE WEBSITE DESTROYER - TOTAL ANNIHILATION 🌋
 
-![prof](prof.png)
+![prof](prof.jpg)
 ![prof 2](prof%202.png)
 
 </div>
