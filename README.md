@@ -1,12 +1,8 @@
-<div align="center">
-
 # 💀 MØNSTR-M1ND APOCALYPSE CANNON v9.0 💀
 ## 🌋 ULTIMATE WEBSITE DESTROYER - TOTAL ANNIHILATION 🌋
 
 ![prof](prof.jpg)
 ![prof 2](prof%202.png)
-
-</div>
 
 ---
 
@@ -31,30 +27,28 @@
 
 ## 📥 التحميل المباشر
 🔗 https://mega.nz/file/SRtEkJKB#0MhaiU8PuwbW3cE2kn3_1PIUWOYV2zR0XDW6EmyXefk
-text**كود فك RAR: تواصل معي شخصياً**
+كود فك RAR: تواصل معي شخصياً**
 
 ---
 
 ## 💬 تواصل مع MØNSTR-M1ND
-[![📲 تواصل فوري](https://img.shields.io/badge/📲%20MØNSTR--M1ND-%230088cc?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/monstr_m1nd)
+
+[![📲 تواصل فوري](https://img.shields.io/badge/📲_MØNSTR-M1ND-0088cc?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/monstr_m1nd)
 
 ## 👥 قناتنا الرسمية
-[![📢 القناة](https://img.shields.io/badge/📢%20MCA_4HKRS-%230088cc?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/MCA_4HKRS)
+
+[![📢 القناة](https://img.shields.io/badge/📢_MCA_4HKRS-0088cc?style=for-the-badge&logo=telegram&logoColor=white)](https://t.me/MCA_4HKRS)
 
 ---
 
 ## 🪙 تبرع BTC (اختياري)
 12w4jBxtUopH29c31HVaUxUquwDzGiwk8a
-text---
 
 ## ⚠️ ملاحظة قانونية
+
 **كل استخدام تحت مسؤولية المستخدم 100%**  
 **المطور غير مسؤول عن أي استخدام**
 
 ---
 
-<div align="center">
-![prof](prof.png)
-![prof 2](prof%202.png)
 **🚀 جاهز للتدمير الكامل 🚀**
-</div>
